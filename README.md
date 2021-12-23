@@ -1,5 +1,5 @@
 - 👋 @LegallyPinkClub
-- 👀 www.http://legallypink.crypto
+- 👀 http://legallypink.co.uk
 - 🌱 I’m currently learning ...Blockchein 
 - 💞️ I’m looking to collaborate on ...Blockchein
 - 📫 How to reach me ...club.legallypink@outlook.com
